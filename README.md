@@ -1,3 +1,5 @@
+### Discord: ololo7
+
 <!-- # 🗳️ Vote -->
 
 ## Summary
